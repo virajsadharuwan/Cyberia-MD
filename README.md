@@ -1,4 +1,4 @@
-# Cyberia-MD 
+# chiku-MD 
 
 <img src="https://i.imgur.com/dBaSKWF.gif" height="90" width="100%">
 𝐁𝐞𝐬𝐭 𝐖𝐡𝐚𝐭𝐬𝐚𝐩𝐩 𝐁𝐨𝐭 𝐂𝐫𝐞𝐚𝐭𝐞𝐝 𝐁𝐲 Dev Sung 🔮⚜️
