@@ -126,4 +126,4 @@ gvv
 - [Malvin King](https://github.com/XdKing2)
 - For helping in bot plugin files.
 ---
-<a><img src='https://i.imgur.com/LyHic3i.gif'/>
+<a><img src='https://i.imgur.com/LyHic3i.gif'/>h
